@@ -12,4 +12,4 @@
 📬 Let's connect:  
 - **Email:** [ahmed.shetaa.2003@gmail.com](mailto:ahmed.shetaa.2003@gmail.com)  
 - **LinkedIn:** [linkedin.com/in/ahmedsheta](www.linkedin.com/in/ahmed-sheta2003)  
-- **Kaggle:** [kaggle.com/ahmedsheta]([https://www.kaggle.com/ahmedsheta](https://www.kaggle.com/ahmedsheta2003))  
+- **Kaggle:** [kaggle.com/ahmedsheta](www.kaggle.com/ahmedsheta](https://www.kaggle.com/ahmedsheta2003))  
